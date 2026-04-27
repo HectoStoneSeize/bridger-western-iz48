@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with custom Scripts for bridger western, the #1 Script. Includes undetectable and infinite resources for
 
 
 
